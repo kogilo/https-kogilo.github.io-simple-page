@@ -1,0 +1,1 @@
+# https-kogilo.github.io-simple-page
